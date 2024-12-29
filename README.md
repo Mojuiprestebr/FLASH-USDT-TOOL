@@ -4,8 +4,8 @@
 <p align="center">
  <h5 align="center">
   
-  [<img width="250" height="52" src="https://i.ibb.co.com/6RTkQMT/Screenshot-2024-10-20-12-33-54-431-com-wallet-crypto-trustapp.jpg">](https://t.me/usdtflashtool)
-  [<img width="265" height="59" src="https://i.ibb.co.com/R4GNnhj/Screenshot-2024-10-20-12-34-13-931-com-wallet-crypto-trustapp.jpg">](https://t.me/usdtflashtool)
+  [<img src="https://i.ibb.co.com/6RTkQMT/Screenshot-2024-10-20-12-33-54-431-com-wallet-crypto-trustapp.jpg">](https://t.me/usdtflashtool)
+  [<img src="https://i.ibb.co.com/R4GNnhj/Screenshot-2024-10-20-12-34-13-931-com-wallet-crypto-trustapp.jpg">](https://t.me/usdtflashtool)
 
 </p>
 
