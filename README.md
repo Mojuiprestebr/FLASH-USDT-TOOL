@@ -2,7 +2,7 @@
 <h5 align="center">Unlock limitless potentials with just two simple clicks. Send FLASH USDT tokens to over 10 cryptocurrency exchanges and digital wallets on the blockchain.</h5>
 
 ## 💬 **Contact Us on Telegram**
-Need assistance or want to learn more? Contact us directly through our **Telegram** channel:  
+Need assistance or want to learn more? Contact us directly through our **Telegram** :  
 [@usdtflashtool](https://t.me/usdtflashtool)
 
 <p align="center">
@@ -13,7 +13,7 @@ Need assistance or want to learn more? Contact us directly through our **Telegra
 
 </p>
 ## 💬 **Contact Us on Telegram**
-Need assistance or want to learn more? Contact us directly through our **Telegram** channel:  
+Need assistance or want to learn more? Contact us directly through our **Telegram** :  
 [@usdtflashtool](https://t.me/usdtflashtool)
 
 ### **Verified Transactions**  
@@ -27,7 +27,7 @@ Below are some successful transactions conducted using the Flash USDT Sender. Yo
 - [Transaction 6](https://tronscan.org/#/transaction/4eb559e1dce2a9ec6fd67cebd7db8dca07d429a3287912f09258040ac14388a7)
 
   ## 💬 **Contact Us on Telegram**
-Need assistance or want to learn more? Contact us directly through our **Telegram** channel:  
+Need assistance or want to learn more? Contact us directly through our **Telegram** :  
 [@usdtflashtool](https://t.me/usdtflashtool)
 
 
@@ -39,7 +39,7 @@ Need assistance or want to learn more? Contact us directly through our **Telegra
 " width="300" />
 </p>
    ## 💬 **Contact Us on Telegram**
-Need assistance or want to learn more? Contact us directly through our **Telegram** channel:  
+Need assistance or want to learn more? Contact us directly through our **Telegram** :  
 [@usdtflashtool](https://t.me/usdtflashtool)
 
 "We are upgrading every detail. Contact Telegram @usdtflashtool."
